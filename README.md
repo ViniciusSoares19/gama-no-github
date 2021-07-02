@@ -1,0 +1,1 @@
+O curso está sendo muito satisfatório, pois trata o que se pede no mercado de tecnologia.
