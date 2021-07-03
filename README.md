@@ -1,1 +1,1 @@
-O curso está sendo muito satisfatório, pois trata o que se pede no mercado de tecnologia.
+O curso está sendo muito incível, pois trata o que se pede no mercado de tecnologia.
